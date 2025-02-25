@@ -15,7 +15,7 @@
  
 <div style="display: inline_block"><br>
 
-  <img align="center" alt="" src="https://github.com/NanaDoYgor/NanaDoYgor/assets/164526857/5b1aa9d6-e7f6-4827-9676-dc5066093f48">
+  <img align="center" alt="" src="https://github.com/user-attachments/assets/be0b09b7-1042-4add-97c2-0dfc7663605a">
 </div>!
 
 
