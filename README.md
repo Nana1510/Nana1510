@@ -10,7 +10,7 @@
  
 ‧ᵎ
 
- ![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=NanaDoYgor&show_icons=true&theme=dracula)
+
 
  
 <div style="display: inline_block"><br>
