@@ -28,3 +28,4 @@ But if you meet me out in school I'm not a talkative guy
 <div> 
   <a href = "mailto:anna.czajka@escola.pr.gov."><img src="https://img.shields.io/badge/-Gmail-%23333?style=for-the-badge&logo=gmail&logoColor=white" target="_blank"></a>
 
+:3
