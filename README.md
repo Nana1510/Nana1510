@@ -1,6 +1,7 @@
 ## 𝐒𝐭a𝐫 ──★  !!   ¡!(˶🦌๑)
 𐙚 ⋆ ๑₊˚ʚ ᗢ₊˚
--  °`⟡ I don't have to see you right now.
+-  °`⟡ If you see me in my home I might say: Hi
+But if you meet me out in school I'm not a talkative guy
  
 - 
 ▶︎ •၊၊||၊|။||||| 3:28            ୧ ‧₊˚  ⋅
