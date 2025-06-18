@@ -1,7 +1,7 @@
 ## 𝐒𝐭a𝐫 ──★  !!   ¡!(˶🦌๑)
 𐙚 ⋆ ๑₊˚ʚ ᗢ₊˚
 -  °`⟡ If you see me in my home I might say: Hi
-But if you meet me out in school I'm not a talkative guy
+nineteen - lil peep
  
 - 
 ▶︎ •၊၊||၊|။||||| 3:28            ୧ ‧₊˚  ⋅
