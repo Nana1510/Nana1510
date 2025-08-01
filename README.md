@@ -46,7 +46,7 @@
  
 <div style="display: inline_block"><br>
 
-  <img align="center" alt="" src="https://github.com/user-attachments/assets/290345b5-0fca-417d-8d3d-75c28bbdde71">
+  <img align="center" alt="" src="https://github.com/user-attachments/assets/9c9afa59-27f0-45e8-adf3-1c0ad2ba459a">
 </div>! ₊✩₍^. .^₎⟆
 
 
