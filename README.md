@@ -15,7 +15,7 @@
 
 <div style="display: inline_block"><br>
 
-  <img align="center" alt="" src="https://github.com/user-attachments/assets/e856a28f-ce81-40c3-bd36-ed0f0aeb0d55">
+  <img align="center" alt="" src="https://github.com/user-attachments/assets/c00310e5-b4b3-4803-8b84-f6ff3c329101">
 </div>! ₊✩₍^. .^₎⟆
 
 
