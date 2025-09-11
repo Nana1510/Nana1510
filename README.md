@@ -1,4 +1,4 @@
-## 𝐒𝐭a𝐫 ──★  !!   ¡!(˶🌸๑)
+## 𝐒𝐭a𝐫's are dead ──★  !!   ¡!(˶๑)
 𐙚 ⋆ ๑₊˚ʚ ᗢ₊˚
 -  °`⟡
    nineteen - lil peep
@@ -6,7 +6,7 @@
 - 
 ▶︎ •၊၊||၊|။||||| 3:28            ୧ ‧₊˚  ⋅
 
-ᶻ 𝗓  Life is Strange ⋆｡‧˚ʚ🦊💮🏮ɞ˚‧｡⋆
+ᶻ 𝗓  Life is Strange ⋆｡‧˚ʚ ୭ ˚. ᵎᵎɞ˚‧｡⋆
 
  Do Ygor
                  へ  ♡       
@@ -15,7 +15,7 @@
 
 <div style="display: inline_block"><br>
 
-  <img align="center" alt="" src="https://github.com/user-attachments/assets/c00310e5-b4b3-4803-8b84-f6ff3c329101">
+  <img align="center" alt="" src="https://github.com/user-attachments/assets/87ec8aa9-31ab-41f4-ba8a-e5985a1b4c1b">
 </div>! ₊✩₍^. .^₎⟆
 
 
