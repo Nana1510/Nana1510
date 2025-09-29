@@ -2,6 +2,8 @@
 𐙚 ⋆ ๑₊˚ʚ ᗢ₊˚
 -  °`⟡
    nineteen - lil peep
+
+   I'ma have a couple million when I'm 21
  
 - 
 ▶︎ •၊၊||၊|။||||| 3:28            ୧ ‧₊˚  ⋅
