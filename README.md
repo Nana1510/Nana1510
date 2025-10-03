@@ -17,6 +17,7 @@
 
 <div style="display: inline_block"><br>
 
+   https://github-readme-stats.vercel.app/api?username=NanaDoYgor&show_icons=true&theme=dracula)
   <img align="center" alt="" src="https://github.com/user-attachments/assets/87ec8aa9-31ab-41f4-ba8a-e5985a1b4c1b">
 </div>
 
