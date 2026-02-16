@@ -8,7 +8,7 @@
 - 
 ▶︎ •၊၊||၊|။||||| 3:28            ୧ ‧₊˚  ⋅
 
-ᶻ 𝗓  Life is Strange ⋆｡‧˚ʚ ୭ ˚. ᵎᵎɞ˚‧｡⋆
+ᶻ 𝗓  ⋆｡‧˚ʚ ୭ ˚. ᵎᵎɞ˚‧｡⋆
 
  Do Ygor
                  へ  ♡       
@@ -26,11 +26,9 @@
   <img align="center" alt="github contribution grid snake animation" src="https://raw.githubusercontent.com/mari4souza/mari4souza/output/github-contribution-grid-snake.svg">
 </picture>
 
- ₊✩₍^. .^₎⟆
 
 
 
 <div> 
   <a href = "mailto:anna.czajka@escola.pr.gov."><img src="https://img.shields.io/badge/-Gmail-%23333?style=for-the-badge&logo=gmail&logoColor=white" target="_blank"></a>
 
-:3
